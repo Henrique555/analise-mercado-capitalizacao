@@ -34,4 +34,4 @@ https://www.susep.gov.br
 
 ## 👤 Autor: Henrique Pereira Inácio da Silva
 
-Seu Nome — [LinkedIn](https://www.linkedin.com/in/henrique-pereira-b40a5b153/) | [GitHub](https://github.com/Henrique555)
+Henrique Pereira Inácio da Silva — [LinkedIn](https://www.linkedin.com/in/henrique-pereira-b40a5b153/) | [GitHub](https://github.com/Henrique555)
